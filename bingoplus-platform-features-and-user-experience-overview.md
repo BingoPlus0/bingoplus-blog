@@ -148,5 +148,5 @@ Continue exploring these Winsday guides:
 
 * **Old Articles:**
 
-  * [BingoPlus](https://www.bingoplus.bet.br/)
-  * [Bingo Plus Brasil](https://www.bingoplus.bet.br/)
+[BingoPlus](https://www.bingoplus.bet.br/)
+[Bingo Plus Brasil](https://www.bingoplus.bet.br/)
