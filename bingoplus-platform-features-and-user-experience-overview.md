@@ -145,8 +145,6 @@ Many players appreciate its combination of user-friendly navigation, multiple ga
 Continue exploring these Winsday guides:
 
 * **New Article:** *BingoPlus Rewards and Promotions Guide for New Players*
-
 * **Old Articles:**
-
-[BingoPlus](https://www.bingoplus.bet.br/)
-[Bingo Plus Brasil](https://www.bingoplus.bet.br/)
+  * [BingoPlus](https://www.bingoplus.bet.br/)
+  * [Bingo Plus Brasil](https://www.bingoplus.bet.br/)
